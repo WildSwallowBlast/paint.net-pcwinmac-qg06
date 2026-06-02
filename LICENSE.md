@@ -1,4 +1,4 @@
-# 
+# Último Paint.NET efectos para Mac OS | Élite Paint.NET efectos para PC Windows. Con composición y kit de marca — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
